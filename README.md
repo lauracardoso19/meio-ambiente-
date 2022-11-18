@@ -13,8 +13,16 @@
 <p>despejo de lixo diretamente no mar, rios ou lagos<p/>
 <p>o desmatamento<p/>
 <p>as queimadas<p/>
-
-
+<p>dióxido de enxofre<p/>
+<p>chuva acida<p/>
+<p>pode prejudicar a saude, segurança e o bem estar<p/>
+<p>´como podemos reduzir a poluição?´<p/>
+<p>incentive a coleta seletiva do lixo<p/>
+<p>estimule o uso da bicicleta<P/>
+<p>prezerve a area verde<P/>
+<p>controle rigorozamente o abastecimento de água<p/>
+<p>eduque a população<p/.
+<p>não jogar lixo no chão<p/>
 
 
 
